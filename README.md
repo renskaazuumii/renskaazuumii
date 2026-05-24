@@ -3,7 +3,12 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=kaazuumii&color=97b1db&style=for-the-badge&label=visitors+o.O&" alt="visitors"> </p>
 
-  <img width="736" height="736" alt="1000029401" src="https://github.com/user-attachments/assets/69fee320-8254-4fe0-9227-4966e6cfe9d7" />
+<img width="640" height="517" alt="1000046076" src="https://github.com/user-attachments/assets/1690e879-e534-437c-8270-fcc162a22ba8" />
 
 
-a huuuge wip ! stay tuned!! (or not.)
+i lied. this will never be finished. i lost my motivation and i will unalive myself soon
+
+
+
+
+i think
