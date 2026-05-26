@@ -6,9 +6,4 @@
 <img width="640" height="517" alt="1000046076" src="https://github.com/user-attachments/assets/1690e879-e534-437c-8270-fcc162a22ba8" />
 
 
-i lied. this will never be finished. i lost my motivation and i will unalive myself soon
-
-
-
-
-i think
+goodbye to a cruel world . i do not belong to this place .
